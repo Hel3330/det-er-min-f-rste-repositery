@@ -1,1 +1,1 @@
-# det-er-min-f-rste-repositery
+# det-er-min-f-rste-repositery.  hel kar
